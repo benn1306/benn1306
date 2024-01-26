@@ -4,4 +4,4 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: fish can breathe on land, they choose not to
 
-(If your a university ignore the fish comment)
+(If you're a university ignore the fish comment)
